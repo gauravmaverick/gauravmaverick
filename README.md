@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @gauravmaverick
+- 👀 I’m interested in music, meditation and technology.
+- 📫 How to reach me via instagram gaurav.nema
+- 😄 Pronouns: He/Him
+- ⚡ Fun fact: I cook
